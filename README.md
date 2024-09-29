@@ -6,3 +6,4 @@
 - 😄 Pronouns: man boy
 - ⚡ Fun fact: i have none
 - 🤏 Each one will have a random tag
+the responeres are not supost to be there so go to my orgnisation
