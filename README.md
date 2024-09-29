@@ -5,3 +5,4 @@
 - 📫 How to reach me my email is joashjaxon9@gmail.com
 - 😄 Pronouns: man boy
 - ⚡ Fun fact: i have none
+- 🤏 
